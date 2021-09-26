@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Nethums
+- 👋 Hi, I’m Miguel Ángel Gallart (@Nethums).
 - 👀 I’m interested in all related to web pages. I think it is the present and the future for any technology in our society.
 - 🌱 I am a second year DAW student at IES Abastos (Valencia).
 - 📫 How to reach me through... well, i'll contact you :)
